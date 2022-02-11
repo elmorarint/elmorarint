@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @elmorarint
 - 👀 I’m interested in watch sum movies
 - 🌱 I’m currently learning to make my self happy (not necesarry for others actually, but it's important to me)
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on new advantage!
 - 📫 How to reach me you can dm me at my twitter @ElmoraRintami
 
 <!---
